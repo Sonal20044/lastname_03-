@@ -1,2 +1,2 @@
 # lastname_03-
-Group: Belle, Sonal, Jisoo
+Group: Bella, Sonal, Jisoo
