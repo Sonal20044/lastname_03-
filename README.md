@@ -23,6 +23,6 @@ in your notes below.
 ---
 
 ## Add your Info Below:
-Group: Bella, Sonal, Jisoo 
+Group: Bella, Sonal and Jisoo 
 
 
